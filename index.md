@@ -4,7 +4,8 @@
 > -- Ilya Zosima
 
 
-The triad of faith, hope, and charity lacks the governor and regulator truth & love. We reclaim them in. 2026!
+The triad of faith, hope, and charity lacks the governor and regulator: truth & love.        
+We reclaim them in. 2026!                  
 -- 2 John 1:3
 
 ---
